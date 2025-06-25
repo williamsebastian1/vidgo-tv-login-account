@@ -1,1 +1,1 @@
-# How-Do-I-Access-My-Vidgo-TV-Login-Account-
+vidgo tv login account
